@@ -6,7 +6,7 @@
 
 Horské kolo je **skvělý sport**, ale první jízdy jsou drsné. Tahle příručka shrnuje, co jsem se naučil ~~po pár pádech~~ díky zkušenostem. *(Ano, pády jsou součást procesu.)*
 
-![Sjezd z kopce na horském kole](images/mtb-trail.jpg)
+![Sjezd z kopce na horském kole](cc4b5ede8b100985-1600-1200-wz-60.webp)
 *Obrázek 1: Moje oblíbená trasa v lese*
 
 ## 🎒 Základní výbava
